@@ -1,0 +1,1 @@
+# To-calculate-the-Simple-Interest-and-the-Amount-to-Pay
